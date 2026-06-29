@@ -1,4 +1,4 @@
-
+new hypershot Scripts is the best hypershot Script, featuring fly and anti-ban. Safe and powerful for all your needs.
 
 
 
